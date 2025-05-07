@@ -1,1 +1,13 @@
-# OVERGEARED2
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch223.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH224.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH225.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH226.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH227.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH228.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH229.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH230.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/CH231.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch232.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch233.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch234.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch235.CBZ
