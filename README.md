@@ -1,9 +1,5 @@
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch246-Reversed-Rank.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch247.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch248.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch249-Wise-Villain.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch250-I-Became-an-E.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch251.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch252-Once-Again-Fr.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch253.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch254-New-Continent.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch255.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch257.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch256.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch258.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Reaper-Scans-Ch259.CBZ
