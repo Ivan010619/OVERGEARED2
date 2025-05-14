@@ -1,6 +1,4 @@
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-267.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-268.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-269.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-270.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-271.CBZ
-https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter%20272.cbz
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-273.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-2735.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-274.CBZ
+https://github.com/Ivan010619/OVERGEARED2/raw/refs/heads/main/Chapter-275.CBZ
